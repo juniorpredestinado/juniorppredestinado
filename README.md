@@ -9,7 +9,7 @@ Meu nome é ##Leandro Santos
 ### Você pode entrar em contato comigo 📫
 
 leandrojuniorsantos@gmail.com
+
 @leandrosantos
 
-
-![](https://tenor.com/bJBHe.gifhttps://tenor.com/bJBHe.gif)
+![]()
