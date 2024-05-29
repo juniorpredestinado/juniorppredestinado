@@ -10,6 +10,6 @@ Meu nome é ##Leandro Santos
 
 junioryara1533@gmail.com
 
-@leandrosantosjunior@
+@leandrosantosjunior
 
 ![](https://media.tenor.com/3AhuaFENK-wAAAAi/aaaa.gif)
