@@ -8,8 +8,8 @@ Meu nome é ##Leandro Santos
 
 ### Você pode entrar em contato comigo 📫
 
-leandrojuniorsantos@gmail.com
+junioryara1533@gmail.com
 
-@leandrosantos
+@leandrosantosjunior@
 
-![]()
+![](https://media.tenor.com/3AhuaFENK-wAAAAi/aaaa.gif)
